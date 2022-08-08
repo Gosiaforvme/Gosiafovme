@@ -1,0 +1,2 @@
+# Gosiafovme
+Pls buy dollar 
